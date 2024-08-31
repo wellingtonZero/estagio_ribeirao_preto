@@ -1,0 +1,1 @@
+Técnica usadas para Avaliação 
